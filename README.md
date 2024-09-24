@@ -1,1 +1,1 @@
-# Security-Awareness
+# Cybersecurity Awareness Training Program
